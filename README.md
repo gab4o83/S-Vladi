@@ -1,30 +1,32 @@
-Gabi vs 100 humans: AN EPIC FIGHT.
-mustard mustard mustard mustard mustard mustard
-mustard mustard mustard mustard mustard mustard
-mustard mustard mustard mustard mustard mustard
-mustard mustard mustard mustard mustard mustard
-mustard mustard mustard mustard mustard mustard
-mustard mustard mustard mustard mustard mustard
-mustard mustard mustard mustard mustard mustard
-mustard mustard mustard mustard mustard mustard
-mustard mustard mustard mustard mustard mustard
-mustard mustard mustard mustard mustard mustard
-mustard mustard mustard mustard mustard mustard
-mustard mustard mustard mustard mustard mustard
-mustard mustard mustard mustard mustard mustard
-mustard mustard mustard mustard mustard mustard
-mustard mustard mustard mustard mustard mustard
-mustard mustard mustard mustard mustard mustard
-mustard mustard mustard mustard mustard mustard
-mustard mustard mustard mustard mustard mustard
-mustard mustard mustard mustard mustard mustard
-mustard mustard mustard mustard mustard mustard
-mustard mustard mustard mustard mustard mustard
-mustard mustard mustard mustard mustard mustard
-mustard mustard mustard mustard mustard mustard
-mustard mustard mustard mustard mustard mustard
-mustard mustard mustard mustard mustard mustard
-mustard mustard mustard mustard mustard mustard
-mustard mustard mustard mustard mustard mustard
-mustard mustard mustard mustard mustard mustard
-Vladi e tumbak
+Шаранът е вид сладководна риба, много популярна в България и в целия свят заради своето значение в риболова и аквакултурата.
+
+Основни характеристики
+Външен вид: Шаранът има здрава и покрита с люспи голяма глава, муцуна с две мустачки отстрани на устата. Тялото му е сравнително масивно и цилиндрично.
+
+Размери: Обикновено достига до 40-60 см дължина, но може да порасте и до 1 метър и повече.
+
+Тегло: В дивата природа може да достигне 10-15 кг, а понякога и повече.
+
+Среда на обитание
+Предпочита бавни реки, езера, блата, канали и други сладководни водоеми.
+
+Обича дъна с кал и тиня, където може да се храни.
+
+Хранене
+Шараните са всеядни, но предпочитат растителна храна — водни растения, алги.
+
+Хранят се и с насекоми, червеи, миди и дребни животни, които намират по дъното.
+
+Използват устата си за претърсване и вадене на храна от тинята.
+
+Размножаване
+Размножават се през пролетта и лятото при температура на водата около 15-20°C.
+
+Женските снасят хиляди яйца, които се залепват за растенията.
+
+Значение за хората
+Шаранът е важен за спортния и любителски риболов.
+
+Развъжда се широко в рибарници за храна.
+
+Много култури свързват шарана със символи на издръжливост, късмет и благополучие.
